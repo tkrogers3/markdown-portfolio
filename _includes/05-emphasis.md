@@ -1,0 +1,2 @@
+I began my web design and code studies with
+[Awesome Inc Intro to Web Development](https://www.awesomeinc.org/intro-to-web-development) 4 months ago. During this time I gained experience and knowledge in __CSS__,  __HTML__,__JavaScript__, and __Git__. Something I really enjoyed during the Intro class was how there are mutiple layers and languages involved to a build a website. It takes *layer* after *layer* after *layer* to build the :cake: known as a website.
