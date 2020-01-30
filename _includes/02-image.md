@@ -1,0 +1,1 @@
+![Tim Rogers with his wife, Amy](https://scontent.find1-1.fna.fbcdn.net/v/t31.0-8/10014962_10207215944575803_1160770580647785519_o.jpg?_nc_cat=104&_nc_ohc=nYar59r_UnAAX8HakiX&_nc_ht=scontent.find1-1.fna&oh=e3948441f2e126acd1b982f7cfaa9b4d&oe=5EC36DB2)
